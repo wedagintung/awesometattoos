@@ -1,0 +1,867 @@
+---
+title: "47+ Heart tattoo placement information"
+date: 2021-09-06
+publishDate: 2021-10-11T15:24:49Z
+image: "https://i.pinimg.com/originals/4c/e2/6c/4ce26c335f00ec209fd9236dacf06612.png"
+author: "Diana" # use capitalize
+description: "Your Heart tattoo placement images are ready in this website. Heart tattoo placement are a topic that is being searched for and liked by netizens today. You can Get the Heart tattoo placement files here. Find and Download all royalty-free photos in here."
+categories: ["Best Tattoo"]
+tags: ["Tattoo Ideas"]
+keywords: "Heart tattoo placement"
+draft: false
+
+---
+<!DOCTYPE html>
+<html lang="en">
+<head>
+    <meta charset="utf-8">
+    <meta name="viewport" content="width=device-width, initial-scale=1.0">
+    <title>
+        Heart Tattoo Placement
+    </title>
+    <p>
+    Your Heart tattoo placement images 4K are available. Heart tattoo placement are a topic that is being searched for and liked by netizens today. You can Find and Download the Heart tattoo placement files here. Get all royalty-free photos and vectors in sini. Heart tattoo placement was informed completly and detail.
+</p>
+   
+	
+<!--more-->
+    
+	
+	
+</head>
+<body>
+<header>
+
+<p>
+      
+If you're searching for <strong>heart tattoo placement</strong> images information linked to the <strong>heart tattoo placement</strong> interest, you have pay a visit to the right  blog.  Our website always  gives you  suggestions  for viewing  the highest  quality video and picture  content, please kindly surf and find more enlightening video articles and images  that match your interests.</p>
+        
+</header>
+<main>
+<article>
+    
+
+<div class="navi text-center">
+                    <p align="justify">   <br>              
+            </p>
+                                        <a class="badge badge-light" href="/post/easy-rose-tattoos.html">Easy rose tattoos</a>
+                                            <a class="badge badge-success" href="/post/hand-tattoos-red.html">Hand tattoos red</a>
+                                            <a class="badge badge-warning" href="/post/gun-sleeve-tattoo-ideas.html">Gun sleeve tattoo ideas</a>
+                                            <a class="badge badge-secondary" href="/post/gypsy-tattoo-sleeve-ideas.html">Gypsy tattoo sleeve ideas</a>
+                                            <a class="badge badge-info" href="/post/hand-tattoo-like-stephen-bear.html">Hand tattoo like stephen bear</a>
+                                            <a class="badge badge-warning" href="/post/hand-tattoos-sims-4.html">Hand tattoos sims 4</a>
+                                            <a class="badge badge-light" href="/post/funny-dad-tattoos.html">Funny dad tattoos</a>
+                                            <a class="badge badge-dark" href="/post/forearm-tattoos-joker.html">Forearm tattoos joker</a>
+                    </div>
+    
+**Heart Tattoo Placement**.   
+            <figure>
+        <img class="v-cover ads-img" src="https://i.pinimg.com/originals/fc/a2/cb/fca2cb486294459ca75cd24e36e4b869.jpg" alt="Best Locations For Small Tattoo Designs Tattoos For Women Feminine Tattoos Tattoos Small Heart Tattoos" style="width: 100%; padding: 5px; background-color: grey;"  onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ2b_G7PAz-k0MdbNm7vDd5Ko0hdDgDnEa6WitYb3x_mpjvXs3J3D96M-DcSNuZoW2ZT5s';">
+        <figcaption>Best Locations For Small Tattoo Designs Tattoos For Women Feminine Tattoos Tattoos Small Heart Tattoos from ar.pinterest.com</figcaption>
+    </figure>
+    
+<div>
+<span class="garis">
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 600 x 450 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span>
+<span class="garis"> 
+</div>
+<p>
+
+
+### <br>
+ 
+</p>
+</article>
+
+<section>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Heart With Letter Artist Hktattoo Wing Tattoos Tattoo Fonts Tattoo Lettering" src="https://i.pinimg.com/originals/20/24/44/202444fccfd45c6142e079efde46aab4.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTfKbTwUNXNSryZBHPg1zc2kcdaFSMOJSPRufj_TMc1JR0OKnOn5dlkvJZz2j1in75mtYA';" />
+<figcaption>
+<Medium>Heart With Letter Artist Hktattoo Wing Tattoos Tattoo Fonts Tattoo Lettering - Source: ar.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 640 x 640 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Pin On Taekook" src="https://i.pinimg.com/originals/a8/33/3f/a8333fa4d0599f25e0c994deba63ac34.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTZmge1dZ9kHXHwpZ-i68HCi3zdec9SCt769oOvidDX9REbwMZsDiX8RejFYm3IZdP6ycs';" />
+<figcaption>
+<Medium>Pin On Taekook - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 912 x 736 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Sahlt S Heart Tattoo Tattoos Hip Tattoo Small Small Heart Tattoos" src="https://i.pinimg.com/originals/7f/c3/35/7fc335ea08e9310831c37af148386a6e.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSA4pU6_HZns4RT3F19haok_GYzURpeZEAbFXbXick2BuzLAI2BqtMpB8C_MiUkE6oBDmA';" />
+<figcaption>
+<Medium>Sahlt S Heart Tattoo Tattoos Hip Tattoo Small Small Heart Tattoos - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 740 x 750 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Pin On T" src="https://i.pinimg.com/originals/a6/a1/54/a6a15471ec846f1c58359161f1c60a30.png" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTGySvp9ns_rw9FYavQxX7GkBwNQAxG4C5hbliriIVUtRtAUK3knK_LTnwjWl1aY2g0vIU';" />
+<figcaption>
+<Medium>Pin On T - Source: ro.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 886 x 812 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: png </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Pin On Tattoo Ideas" src="https://i.pinimg.com/originals/8a/a7/be/8aa7beba8a1345a580b15e0b7db5a778.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQzrjtstIMqEwiqjd9MoNgFU8_dCLVFRaB7ITCcWH8KFLwg77HxJUo7f9_kZIYsSn0QZFM';" />
+<figcaption>
+<Medium>Pin On Tattoo Ideas - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 1250 x 1000 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="On Maria Inspired By Dali S Painting Tattoo Persistenceofmemory Salvadordali Flashtattoo Chinatownstropky Tattoo Placement Dali Tattoo Tattoo Trends" src="https://i.pinimg.com/originals/7e/bb/ee/7ebbee10cc63ba382fca37566c50a5c4.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQInCLmjTjQYNoblHY3NpIag2oaQeRJq0Ba30dUx7PqX1zxcGqui8pqen6ldp2nr6tTAUg';" />
+<figcaption>
+<Medium>On Maria Inspired By Dali S Painting Tattoo Persistenceofmemory Salvadordali Flashtattoo Chinatownstropky Tattoo Placement Dali Tattoo Tattoo Trends - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 1080 x 1080 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Pin Pa Tattoo Placement" src="https://i.pinimg.com/736x/98/da/c5/98dac5017d2d49a684995566bccae992.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSoytvIlW8JxJ6QULbUfiXyYjT0iY8CvOScSjSNs9QHkBK1Jc6xvrio34bxcoG12FI2YA0';" />
+<figcaption>
+<Medium>Pin Pa Tattoo Placement - Source: tr.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 981 x 736 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Pin On Next Tattoo Ideas" src="https://i.pinimg.com/originals/72/c4/f8/72c4f8d9985c484780a312c3fda4f2ce.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSpUx3ghhdWAPIHpW3Jt8KNjbc-dghub8mXOlRB6m3T4lpeswgmQzwqvsXLNiSdngEvVf0';" />
+<figcaption>
+<Medium>Pin On Next Tattoo Ideas - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 1024 x 1024 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Pin By Wilbia Rojas On Love Love Love Red Heart Tattoos Tiny Heart Tattoos White Heart Tattoos" src="https://i.pinimg.com/originals/69/71/86/697186ee8bb6f01726a89196db6b3be9.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS6Xn2xpwAzw87ArgL4uB73SiA05_R_lvHR1wHWSRsuXffhPMmWNaVu7gvXt_JY9wgzLiU';" />
+<figcaption>
+<Medium>Pin By Wilbia Rojas On Love Love Love Red Heart Tattoos Tiny Heart Tattoos White Heart Tattoos - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 1024 x 768 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Pin On Tattoos" src="https://i.pinimg.com/originals/2f/68/36/2f6836079e4d7eba6a341017fbf0d21e.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS6YxmWT80J1AyRo9njbujqr5u6qVEKTcCDQU7t8Vayw5Nmvcw2QYFH2rfK-sBEbWlcIGc';" />
+<figcaption>
+<Medium>Pin On Tattoos - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 2000 x 922 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Pin On Lauren" src="https://i.pinimg.com/originals/79/fa/f8/79faf89d6f7fe8ee9c696015c9228bfd.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQwYRD0pA8dhfLF3a4hvxnZXCfIbgjvut8bpsfUHc_LOMrPQVxU5KOxOpvErv24WLm2SVw';" />
+<figcaption>
+<Medium>Pin On Lauren - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 640 x 480 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Heart Tattoo Designs The Body Is A Canvas Tiny Heart Tattoos Tasteful Tattoos Small Heart Tattoos" src="https://i.pinimg.com/originals/71/f7/2e/71f72e5bf518b0cad6004980db6b9524.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQH4DSVOBvPFchdBIq9GkkbTzavx39GlNKX6y8TFU9v3SUu7DUoU2_QX8zXlha-7nRLvX8';" />
+<figcaption>
+<Medium>Heart Tattoo Designs The Body Is A Canvas Tiny Heart Tattoos Tasteful Tattoos Small Heart Tattoos - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 236 x 236 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Dainty Heart Tattoo By Kikimo On Instagram Heart Tattoo Tattoos Tattoo Placement" src="https://i.pinimg.com/originals/ac/da/f3/acdaf3447727cbbd51c0dbecb913f5f2.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSK7gnhxHnn73yZ6wGs8I6ELVNEBb9XkJkFhRV1nooJ7hM6kH1h32eM0xLeHH4K-qPATPE';" />
+<figcaption>
+<Medium>Dainty Heart Tattoo By Kikimo On Instagram Heart Tattoo Tattoos Tattoo Placement - Source: nl.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 2560 x 2048 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Pin By Chastiny Sellers On Tattoos Tiny Heart Tattoos Tasteful Tattoos Heart Tattoo" src="https://i.pinimg.com/originals/d3/31/78/d33178b7c733589d2b0ec6b734c8b2ee.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTY7o8ep_jCG9iIuuPwEBoFJTtvvdl7t7LK1X_AE0atbCavhaI0d97ZnJss2aCkqnfEsLQ';" />
+<figcaption>
+<Medium>Pin By Chastiny Sellers On Tattoos Tiny Heart Tattoos Tasteful Tattoos Heart Tattoo - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 640 x 480 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Love The Placement Tiny Heart Tattoos Small Heart Tattoos Tattoos" src="https://i.pinimg.com/originals/10/c5/b7/10c5b7b7232fea26cc904d6d48ed0014.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcT8PJPaBwU4shss4eXj45lr3oSO8ci2rqaBuQtL-eaYkHWoFvuLaT5vUdWgGtQsETIhstA';" />
+<figcaption>
+<Medium>Love The Placement Tiny Heart Tattoos Small Heart Tattoos Tattoos - Source: es.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 600 x 450 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Pin On Love" src="https://i.pinimg.com/originals/8b/a8/0d/8ba80df522a1a70252ecd7b26bd2dbfb.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTYeaLTpywBB9SZB3K-5UPeBcJbb4795FHsmMEqoTzHjBarn2inSPlT3Bkgsy2KpLA43Cg';" />
+<figcaption>
+<Medium>Pin On Love - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 816 x 612 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Best Locations For Small Tattoo Designs Tattoos For Women Feminine Tattoos Tattoos Small Heart Tattoos" src="https://i.pinimg.com/originals/fc/a2/cb/fca2cb486294459ca75cd24e36e4b869.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ2b_G7PAz-k0MdbNm7vDd5Ko0hdDgDnEa6WitYb3x_mpjvXs3J3D96M-DcSNuZoW2ZT5s';" />
+<figcaption>
+<Medium>Best Locations For Small Tattoo Designs Tattoos For Women Feminine Tattoos Tattoos Small Heart Tattoos - Source: ar.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 600 x 450 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Tattoo Placement On Wrist Flower Wrist Tattoos Beauty Tattoos Tattoos" src="https://i.pinimg.com/originals/4c/e2/6c/4ce26c335f00ec209fd9236dacf06612.png" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTzExPFos-LssiAkRcRoGkhMBPeprKO0_awFh6NQX-dl-C015959iBoZofCC3Se7MHIBQM';" />
+<figcaption>
+<Medium>Tattoo Placement On Wrist Flower Wrist Tattoos Beauty Tattoos Tattoos - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 485 x 454 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: png </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+</section>
+<p>
+This site is an open community for users to <a rel="nofollow" href="/contact.html"> share their favorite wallpapers on the internet</a>, all images or pictures in this site are for personal wallpaper use only, it is stricly prohibited to use this wallpaper for commercial purposes, if you are the author and find this image is shared without your permission, please kindly raise a DMCA report <a href="/contact.html">Contact Us</a>.
+</p>
+<p>If you find this site beneficial, please support us by sharing this posts to your own social media accounts like Facebook, Instagram and so on or you can also bookmark this blog page with the title heart tattoo placement by using Ctrl + D for devices a laptop with a Windows operating system or Command + D for laptops with an Apple operating system. If you use a smartphone, you can also use the drawer menu of the browser you are using. Whether it's a Windows, Mac, iOS or Android operating system, you will still be able to bookmark this website.</p>
+</section>
+         
+<center>
+<div class="d-block p-4">
+	<center>
+		<!-- BOTTOM BANNER ADS -->
+	</center>
+</div></center>
+</main>
+
+<!-- Footer CSS JS -->        
+</body>
+
+</html>

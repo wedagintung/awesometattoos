@@ -1,0 +1,867 @@
+---
+title: "39+ Arrow tattoo sketch information"
+date: 2021-09-06
+publishDate: 2021-06-21T10:07:58Z
+image: "https://i.pinimg.com/originals/ec/d9/5b/ecd95b0697e93ffd3c3179ee0834a518.jpg"
+author: "Duke" # use capitalize
+description: "Your Arrow tattoo sketch images are available. Arrow tattoo sketch are a topic that is being searched for and liked by netizens now. You can Find and Download the Arrow tattoo sketch files here. Get all royalty-free photos and vectors in here."
+categories: ["Tattoo Images"]
+tags: ["Tattoo Images"]
+keywords: "Arrow tattoo sketch"
+draft: false
+
+---
+<!DOCTYPE html>
+<html lang="en">
+<head>
+    <meta charset="utf-8">
+    <meta name="viewport" content="width=device-width, initial-scale=1.0">
+    <title>
+        Arrow Tattoo Sketch
+    </title>
+    <p>
+    Your Arrow tattoo sketch images HD are available. Arrow tattoo sketch are a topic that is being searched for and liked by netizens now. You can Download the Arrow tattoo sketch files here. Find and Download all free images in sini. Arrow tattoo sketch was covered holistic and image item.
+</p>
+   
+	
+<!--more-->
+    
+	
+	
+</head>
+<body>
+<header>
+
+<p>
+      
+If you're searching for <strong>arrow tattoo sketch</strong> pictures information related to the <strong>arrow tattoo sketch</strong> keyword, you have visit the ideal  site.  Our website frequently  provides you with  hints  for seeing  the highest  quality video and picture  content, please kindly surf and locate more enlightening video content and images  that fit your interests.</p>
+        
+</header>
+<main>
+<article>
+    
+
+<div class="navi text-center">
+                    <p align="justify">   <br>              
+            </p>
+                                        <a class="badge badge-info" href="/post/gypsy-sleeve-tattoo-ideas.html">Gypsy sleeve tattoo ideas</a>
+                                            <a class="badge badge-danger" href="/post/finger-tattoos-disappear.html">Finger tattoos disappear</a>
+                                            <a class="badge badge-light" href="/post/g-eazy-tattoo-ideas.html">G eazy tattoo ideas</a>
+                                            <a class="badge badge-secondary" href="/post/fake-cute-tattoos.html">Fake cute tattoos</a>
+                                            <a class="badge badge-info" href="/post/feminine-vine-tattoos.html">Feminine vine tattoos</a>
+                                            <a class="badge badge-danger" href="/post/forearm-tattoos-tips.html">Forearm tattoos tips</a>
+                                            <a class="badge badge-danger" href="/post/forearm-veins-tattoos.html">Forearm veins tattoos</a>
+                                            <a class="badge badge-primary" href="/post/great-memorial-tattoos.html">Great memorial tattoos</a>
+                    </div>
+    
+**Arrow Tattoo Sketch**.   
+            <figure>
+        <img class="v-cover ads-img" src="https://i.pinimg.com/originals/09/1e/68/091e6841e9b586e5b9ca41851547498f.jpg" alt="Pin On Idnew" style="width: 100%; padding: 5px; background-color: grey;"  onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR1wUprDrk37nH_UJGcPLMY4vOSneeGFvQcV7pAMCHdCo21olxnC81CgihoKedGpqjmljE';">
+        <figcaption>Pin On Idnew from www.pinterest.com</figcaption>
+    </figure>
+    
+<div>
+<span class="garis">
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 640 x 640 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span>
+<span class="garis"> 
+</div>
+<p>
+
+
+### <br>
+ 
+</p>
+</article>
+
+<section>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Arrow Tattoo Flash Design Sketch Arrow Tattoo Tattoo Shop Flash Tattoo" src="https://i.pinimg.com/originals/a5/20/70/a5207043b3309a24bba733a76ce8a819.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQSDPk0g268LWUYyiOHs0sKJmzf6cqSlfczaBToYAvfp1s6bd9k6M97Y759OUGDPAD3i0c';" />
+<figcaption>
+<Medium>Arrow Tattoo Flash Design Sketch Arrow Tattoo Tattoo Shop Flash Tattoo - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 3120 x 2763 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Pin On Tats" src="https://i.pinimg.com/originals/ac/14/06/ac1406698574fa4be2405f7b568d0d51.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQNZWU89flRZ4BddJf_MTPKxADLH0g5PpKzTgloCHxzIMBrvU4WlMF1P29nvCQf2Ts4aDM';" />
+<figcaption>
+<Medium>Pin On Tats - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 640 x 640 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Sketch Style Arrow By Kamil Mokot Tattoo Sketches Sketch Style Tattoos Tattoo Designs" src="https://i.pinimg.com/736x/5e/a6/14/5ea6148f9f7b20e4d89fb224dc00ccdb.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTB0RZ1tuT70zeoOD2ty6jQoiz366bWqjqyAH_BxUusttnHljnhnWZeyTH0UgZ66-njC8I';" />
+<figcaption>
+<Medium>Sketch Style Arrow By Kamil Mokot Tattoo Sketches Sketch Style Tattoos Tattoo Designs - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 595 x 595 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Pin Von Koree Ta Auf Geometric Arrow Tattoos Farbtattoo Pfeil Tattoo Geometrisches Pfeil Tattoo" src="https://i.pinimg.com/originals/6f/62/0e/6f620e4d7f0ce4c79c9fd9c0d98aecd6.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTO2bLDB0532ooahr-J8AUFLfWa-5Ahir8-FWwhG74AzBOM3_3KwjJOXWp24Q3uYrwd9oQ';" />
+<figcaption>
+<Medium>Pin Von Koree Ta Auf Geometric Arrow Tattoos Farbtattoo Pfeil Tattoo Geometrisches Pfeil Tattoo - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 487 x 664 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Pin On Idnew" src="https://i.pinimg.com/originals/09/1e/68/091e6841e9b586e5b9ca41851547498f.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR1wUprDrk37nH_UJGcPLMY4vOSneeGFvQcV7pAMCHdCo21olxnC81CgihoKedGpqjmljE';" />
+<figcaption>
+<Medium>Pin On Idnew - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 640 x 640 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Arrow Tattoo Sketch 2016 Arrow Tattoo Tattoo Sketches Home Decor Decals" src="https://i.pinimg.com/originals/4e/42/be/4e42bec1ce67d1dd7458be354e26e5c8.png" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ34gw7Pt_9TEcRQR3xBbMgzLlQRlFdR6n5hyFb6i_fBpgTVpYr0aIkYytZtO75SXQMJc4';" />
+<figcaption>
+<Medium>Arrow Tattoo Sketch 2016 Arrow Tattoo Tattoo Sketches Home Decor Decals - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 784 x 1200 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: png </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Pin Di Raphael Puglia Su Tat Idee Per Tatuaggi Tatuaggi Braccio Tatuaggio Freccia" src="https://i.pinimg.com/originals/4c/fc/e9/4cfce930cc9a6e961bf792e1177b756c.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQS1-4mtSfA_kmRB89g6aPV2mFqPBmNE52a3ITrAWVXPqWF5i_jkpTb_tSHUe0kDBYF3A0';" />
+<figcaption>
+<Medium>Pin Di Raphael Puglia Su Tat Idee Per Tatuaggi Tatuaggi Braccio Tatuaggio Freccia - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 876 x 760 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Pin On Tatuajes Flechas" src="https://i.pinimg.com/736x/4f/de/2b/4fde2b2a2506a3cfb108769f36785fab.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS9py3CpApfg7QQSkjtuQkOoUg44VsSQGf1p0j7mX_grhMFRzMzHlQ-aRKQUWNLpG48qds';" />
+<figcaption>
+<Medium>Pin On Tatuajes Flechas - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 1280 x 720 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="150 Stunning Arrow Tattoo Designs And Their Meanings Awesome Small Arrow Tattoos Mens Arrow Tattoo Arrow Tattoo" src="https://i.pinimg.com/originals/ab/9c/cc/ab9ccc3578f6a349e8dd281473168cff.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRyFjvVVtK8nbKlFzfobPYR2UZtdwza_vvrlCjug8qM3I0L2L_a-M9q90ptX9owh___AQI';" />
+<figcaption>
+<Medium>150 Stunning Arrow Tattoo Designs And Their Meanings Awesome Small Arrow Tattoos Mens Arrow Tattoo Arrow Tattoo - Source: es.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 589 x 595 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Pin On Tats" src="https://i.pinimg.com/474x/8a/3b/7e/8a3b7e19c0f29acaa0963771b0584c07.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRBT7mJ8V4bP8-oO6lnS8XGq-9Nq17KE8GSWQRY_k3vluS7JgLo4m1jqRUId5LUGGeXvlo';" />
+<figcaption>
+<Medium>Pin On Tats - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 474 x 474 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Pin On Mrbufo Dotwork Tattoo Drawings" src="https://i.pinimg.com/originals/73/6d/fc/736dfc6f3d34accf86fdfb5094ee2543.png" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSGex1JNtGE9zASu077cNWUDH-zTvv3ijqmPjJ9jhe1PU9q7HNzrYYxpo03ZmB9kyZwKQc';" />
+<figcaption>
+<Medium>Pin On Mrbufo Dotwork Tattoo Drawings - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 960 x 960 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: png </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Tattoo Sketch Simple Graphic Geometric Lines Arrow Diamonds Radviiiii Photo Photosjoy Arrow Tattoos Triangle Tattoos Geometric Tattoo" src="https://i.pinimg.com/600x315/51/58/eb/5158eb366e3e4b6e39f3bb5867aa46f0.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSv0rJxXwtDwwwHewsuElC4hcPRPkWUM0xhwfEnkbq2L3nzCDGGdxDStxHA6gJGK0COCSc';" />
+<figcaption>
+<Medium>Tattoo Sketch Simple Graphic Geometric Lines Arrow Diamonds Radviiiii Photo Photosjoy Arrow Tattoos Triangle Tattoos Geometric Tattoo - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 306 x 306 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Tumblr Or6re48sqh1ty5xjuo1 1280 Jpg 1 080 1 350 Pixels Writing Tattoos Feather Tattoos Arrow Tattoos" src="https://i.pinimg.com/originals/84/e1/6c/84e16c8ad5c685cc21b44f80e3c88aba.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQqKLN8l_phEKHp1aAzePsIbMquO09CygUNI0YrTSSXSO8Pqc-mEceUdWdQWcHhmQ8s69g';" />
+<figcaption>
+<Medium>Tumblr Or6re48sqh1ty5xjuo1 1280 Jpg 1 080 1 350 Pixels Writing Tattoos Feather Tattoos Arrow Tattoos - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 1350 x 1080 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Pin On Ttoo" src="https://i.pinimg.com/736x/16/d5/3f/16d53fcbdc1e9100f862452ddf51af4f.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRJB2EKY_1FG1pcE2YFS5hT_rIlo7s5kd8ADalZ8kB8mBGWi6rmdbCaUZORBf2CArSDK78';" />
+<figcaption>
+<Medium>Pin On Ttoo - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 849 x 599 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Arrows Print On Etsy 10 00 Arrow Tattoos Small Arrow Tattoos Trendy Tattoos" src="https://i.pinimg.com/originals/c3/11/91/c31191f56922769c074936483ce6ae28.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcREENnZhY3q5Go-JvLwtdgycdmmCTBzKmkTlCq42EUV9c0IFMARtbtubXMdHp2VIbZkWMQ';" />
+<figcaption>
+<Medium>Arrows Print On Etsy 10 00 Arrow Tattoos Small Arrow Tattoos Trendy Tattoos - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 738 x 570 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Arrow Sketch Arrow Tattoos Indian Arrow Tattoo Lion Tattoo Sleeves" src="https://i.pinimg.com/originals/2a/6b/e9/2a6be91a5f744a828d17bf5103f66b94.png" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRCO4XlNHvc1eKrbkBD9Ob-aDHAjQxh1cwEiCZxNkNwMFTOO99FEyBSnpGVha1rokKkNp0';" />
+<figcaption>
+<Medium>Arrow Sketch Arrow Tattoos Indian Arrow Tattoo Lion Tattoo Sleeves - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 750 x 750 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: png </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Pin On Cricut Projects" src="https://i.pinimg.com/originals/24/01/28/2401281a337eabda20cff521372f5e2f.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRNnvWpVpgpDBc4WAF-ZiK-FyEyaJJ3IgZXVe07NlVtXd-WQl5kVgoFoeTRt_aGTviooUU';" />
+<figcaption>
+<Medium>Pin On Cricut Projects - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 345 x 345 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+
+<aside>
+<script>
+var a2a_config = a2a_config || {};
+a2a_config.overlays = a2a_config.overlays || [];
+a2a_config.overlays.push({
+    services: ['pinterest', 'facebook', 'twitter', 'tumblr', 'instagram'],
+    size: '25',
+    style: 'vertical',
+    position: 'upper-left corner'
+});
+</script>
+
+<script async src="https://static.addtoany.com/menu/page.js"></script>
+<figure>
+<img class="v-image ads-img" alt="Rose And Arrow Sketch By Liquid Venom On Deviantart Arrow Tattoos Sketch Tattoo Design Arrow Tattoo Design" src="https://i.pinimg.com/originals/ec/d9/5b/ecd95b0697e93ffd3c3179ee0834a518.jpg" width="100%" onerror="this.onerror=null;this.src='https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRLsYUMAfAhwCsdkwS3CFm57UPfC584aM-6f1JdoJLcRjWoSvKVDIv5cVcTQRbeixiFrCM';" />
+<figcaption>
+<Medium>Rose And Arrow Sketch By Liquid Venom On Deviantart Arrow Tattoos Sketch Tattoo Design Arrow Tattoo Design - Source: www.pinterest.com</medium>
+<div>
+<span>
+<b>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M2,6.5 C2,5.11928813 3.11928813,4 4.5,4 L19.5,4 C20.8807119,4 22,5.11928813 22,6.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 Z M3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,6.5 C21,5.67157288 20.3284271,5 19.5,5 L4.5,5 C3.67157288,5 3,5.67157288 3,6.5 Z M16,7 L18,7 C18.5522847,7 19,7.44771525 19,8 L19,10 C19,10.5522847 18.5522847,11 18,11 L16,11 C15.4477153,11 15,10.5522847 15,10 L15,8 C15,7.44771525 15.4477153,7 16,7 Z M16,8 L16,10 L18,10 L18,8 L16,8 Z M2.85355339,15.8535534 C2.65829124,16.0488155 2.34170876,16.0488155 2.14644661,15.8535534 C1.95118446,15.6582912 1.95118446,15.3417088 2.14644661,15.1464466 L7.14644661,10.1464466 C7.34170876,9.95118446 7.65829124,9.95118446 7.85355339,10.1464466 L13.5,15.7928932 L16.1464466,13.1464466 C16.3417088,12.9511845 16.6582912,12.9511845 16.8535534,13.1464466 L21.3535534,17.6464466 C21.5488155,17.8417088 21.5488155,18.1582912 21.3535534,18.3535534 C21.1582912,18.5488155 20.8417088,18.5488155 20.6464466,18.3535534 L16.5,14.2071068 L13.8535534,16.8535534 C13.6582912,17.0488155 13.3417088,17.0488155 13.1464466,16.8535534 L7.5,11.2071068 L2.85355339,15.8535534 Z" />
+</svg>
+Images information:
+</b>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M8.29289322,15 L3.5,15 C3.22385763,15 3,14.7761424 3,14.5 C3,14.2238576 3.22385763,14 3.5,14 L9.5,14 C9.77614237,14 10,14.2238576 10,14.5 L10,20.5 C10,20.7761424 9.77614237,21 9.5,21 C9.22385763,21 9,20.7761424 9,20.5 L9,15.7071068 L3.85355339,20.8535534 C3.65829124,21.0488155 3.34170876,21.0488155 3.14644661,20.8535534 C2.95118446,20.6582912 2.95118446,20.3417088 3.14644661,20.1464466 L8.29289322,15 Z M15.7071068,9 L20.5,9 C20.7761424,9 21,9.22385763 21,9.5 C21,9.77614237 20.7761424,10 20.5,10 L14.5,10 C14.2238576,10 14,9.77614237 14,9.5 L14,3.5 C14,3.22385763 14.2238576,3 14.5,3 C14.7761424,3 15,3.22385763 15,3.5 L15,8.29289322 L20.1464466,3.14644661 C20.3417088,2.95118446 20.6582912,2.95118446 20.8535534,3.14644661 C21.0488155,3.34170876 21.0488155,3.65829124 20.8535534,3.85355339 L15.7071068,9 Z" />
+</svg>
+Dimensions: 1082 x 738 </span>
+<span>
+<svg xmlns="http://www.w3.org/2000/svg" width="12" height="12" viewBox="0 012 12">
+<path fill="currentColor" d="M4.5,5 C3.67157288,5 3,5.67157288 3,6.5 L3,17.5 C3,18.3284271 3.67157288,19 4.5,19 L19.5,19 C20.3284271,19 21,18.3284271 21,17.5 L21,9.5 C21,8.67157288 20.3284271,8 19.5,8 L14,8 C12.8954305,8 12,7.1045695 12,6 C12,5.44771525 11.5522847,5 11,5 L4.5,5 Z M4.5,4 L11,4 C12.1045695,4 13,4.8954305 13,6 C13,6.55228475 13.4477153,7 14,7 L19.5,7 C20.8807119,7 22,8.11928813 22,9.5 L22,17.5 C22,18.8807119 20.8807119,20 19.5,20 L4.5,20 C3.11928813,20 2,18.8807119 2,17.5 L2,6.5 C2,5.11928813 3.11928813,4 4.5,4 Z" />
+</svg>
+File type: jpg </span>
+</span></div>
+</figcaption></figure>
+<p>
+ 
+</p>
+</aside>
+</section>
+<p>
+This site is an open community for users to <a rel="nofollow" href="/contact.html"> share their favorite wallpapers on the internet</a>, all images or pictures in this site are for personal wallpaper use only, it is stricly prohibited to use this wallpaper for commercial purposes, if you are the author and find this image is shared without your permission, please kindly raise a DMCA report <a href="/contact.html">Contact Us</a>.
+</p>
+<p>If you find this site beneficial, please support us by sharing this posts to your own social media accounts like Facebook, Instagram and so on or you can also bookmark this blog page with the title arrow tattoo sketch by using Ctrl + D for devices a laptop with a Windows operating system or Command + D for laptops with an Apple operating system. If you use a smartphone, you can also use the drawer menu of the browser you are using. Whether it's a Windows, Mac, iOS or Android operating system, you will still be able to bookmark this website.</p>
+</section>
+         
+<center>
+<div class="d-block p-4">
+	<center>
+		<!-- BOTTOM BANNER ADS -->
+	</center>
+</div></center>
+</main>
+
+<!-- Footer CSS JS -->        
+</body>
+
+</html>

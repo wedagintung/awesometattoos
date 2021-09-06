@@ -1,6 +1,6 @@
 ######################## default configuration ####################
-baseURL = "https://mastertattoos.netlify.app"
-title = "Master Tattoos Ideas"
+baseURL = "https://crazytattoos.netlify.app"
+title = "crazy Tattoos Ideas"
 theme = "jala"
 languageName = "En"
 languageCode = "en-us"
@@ -73,7 +73,7 @@ weight = 5
 [params]
 logo = "images/logo.png"
 # Meta data
-description = "Master Tattoos Ideas"
+description = "crazy Tattoos Ideas"
 author = ""
 
 # search  
@@ -81,7 +81,7 @@ search = true
 # contact form action
 contact_form_action = "#" # contact form works with https://formspree.io
 # copyright
-copyright = "Copyright 2021 Master Tattoos Ideas](https://mastertattoos.netlify.app)"
+copyright = "Copyright 2021 crazy Tattoos Ideas](https://crazytattoos.netlify.app)"
 
 
 # Preloader
